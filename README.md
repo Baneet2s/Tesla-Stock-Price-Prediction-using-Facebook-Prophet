@@ -11,3 +11,7 @@
 ![Image](https://github.com/user-attachments/assets/c5199c7e-ad2b-4670-9d74-d04e89221882)
 ![Image](https://github.com/user-attachments/assets/639460ee-2b1d-4134-85a7-28b73d26a9d7)
 ![Image](https://github.com/user-attachments/assets/def3f26c-b635-4abe-8eff-9f2f7c617fd7)
+
+## **The Predictions and Comparisons**
+![Image](https://github.com/user-attachments/assets/e0328fde-a011-493f-9f23-d2542acd8de8)
+
